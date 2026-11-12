@@ -1,2 +1,1 @@
-Salomaleykum
-ss
+bu mening uyga vazifam
